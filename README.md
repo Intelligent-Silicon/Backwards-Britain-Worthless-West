@@ -56,6 +56,16 @@ I'll add more details when I have the time, but it gets to a point where venting
 
 https://www.washingtonpost.com/world/2025/08/05/germany-trains-delays-broken-railroad/
 
+Exeter Library.
+
+Cameron should have closed all the Libraries in my opinion. As a kid I used to frequent Exeter and Crediton Library all the time, I used to read all the Dr Who books I could get my hands on for the bus ride home from Exeter to Crediton, and would get through a Dr Who book a week on average. It meant that Exeter Library used to have a well stock selection of those books. Today however and its changed. Its not quiet anymore and even though they have a Quiet room for people to study, its upstairs but one side is open to the rest of the library and the simple fact of the matter is you can listen in to other peoples conversations with ease. Coupled with windows which dont open so its baking hot on hot days because the window mechanism has been broken for some time and its simply too bright on the sunniest days to see the laptop monitor and it just becomes unusuable as a Public Service. Throw in term time and its crawling with students and you are then hard pressed to even be able to find a seat let alone any peace and quiet. Yet those running these services, paying for these services and the DWP think its an acceptable work environment!!! I guess thats why some school of economic thinking subscribes to the idea that a functioning economy needs a number of out of work individuals. Personally I think its just another way to control people, making an example of them and their misfortune in order to gain compliance and conformity. 
+
+I'd use the job centre to work if their own computers werent misconfigured by some pleb of a company, but sadly the Job centre doesnt want people in their offices looking for work which is why there are countless security guards stalking the floors eyeing you up and theres no canteen or toilet facilities either to spend the 35hrs a week looking for work. The DWP staff even tell claimants to use the Leonardo hotel next door for the toilet, and yet talking to hotel staff, they are not aware of any arrangement for DWP claimants to use their toilets so sometimes you may actually be met with a refusal right when you need the loo the most. Thats pretty degrading as a homeless individual, but the military always remind me how degrading people can be.
+
+This is just one messed up country, led by Donkeys.
+
+
+
 
 
 
