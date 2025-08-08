@@ -62,7 +62,16 @@ Cameron should have closed all the Libraries in my opinion. As a kid I used to f
 
 I'd use the job centre to work if their own computers werent misconfigured by some pleb of a company, but sadly the Job centre doesnt want people in their offices looking for work which is why there are countless security guards stalking the floors eyeing you up and theres no canteen or toilet facilities either to spend the 35hrs a week looking for work. The DWP staff even tell claimants to use the Leonardo hotel next door for the toilet, and yet talking to hotel staff, they are not aware of any arrangement for DWP claimants to use their toilets so sometimes you may actually be met with a refusal right when you need the loo the most. Thats pretty degrading as a homeless individual, but the military always remind me how degrading people can be.
 
-This is just one messed up country, led by Donkeys.
+
+When you are reliant on soup kitchens because you cant afford to eat and homeless, some food quiet frankly makes you head to the toilet faster than quark in quantum processor. Whilst fast food is the healthiest compared to restaurants, its a predictable outcome which doesnt leave you wanting stocks in Andrex. Even to this day, I wonder why more places are not fitted with a bidet, if I could have ever afforded to of owned my own home all those years ago when I had money but still not enough to get on the housing ladder unless I lied on the application form, which it transpires many have done, then I'd have had a bidet fitted.
+
+Anyway ironically I've never seen a soup kitchen with less than 5 (https://www.food.gov.uk/safety-hygiene/food-hygiene-rating-scheme) even though some of the food is cooked at volunteers homes and transported in the car to the venue. 
+
+Now the venue is simply some table and chairs in a dead end road which has very little traffic. It gets wet when it rains despite a couple of gazebo's because sometimes the servcies are simply over subscribed with plenty of people turning up.
+
+If you want to score some drugs, this is one sure fire place to get them. Last night I had a couple of blocks sat next to meet who sparked up their spic joints and got hammered. One bloke couldnt even hold on to his cup of coffee and fell fast asleep. You dont get a say if someone is smoking spic around you either because its doesnt really smell of much but before you know it, you are hammered! I hate it because it messes my sleep up and a few days later I get uncontrollably angry. In terms of a chemical weapon, this makes people manchurian candidates. Its nasty stuff but to keep that anger down, you need to keep smoking it. 
+
+Thats why you see some people just losing it, its cheaper than weed but its behind more of the violent crime than the authorities want to let on!
 
 
 
