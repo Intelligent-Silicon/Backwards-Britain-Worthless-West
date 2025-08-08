@@ -34,6 +34,8 @@ I'm sometimes sat in Mcdonalds from 06:30 drinking their coffee as its also a pl
 
 I'm then up the Library around lunchtime but the Library has changed, it seems to be more like a creche for young kids, its noisy, the quiet room is bright, which means my eyes get strained working on this laptop, the Wetherspoons is darker and whilst also noisy in the from lunchtime and evening, is tolerable.
 
+The point being, the DWP wants you to be spending time looking for work, but then provides no facilities in order to do it properly. Ergo you are trapped in the Govt's grasps with very little hope of escaping. Its enough to drive people to drugs, if it wasnt for the fact, life was already bad and more and more people are doing drugs to escape the banality of life because no one asks to be born and Voluntary Euthanasia is still not legal in the UK. Yet the boomers still havent worked out the younger generations dont want to be wiping their bottoms in the last years of their lives. Its a fetish which is slowly dying out in younger generations!
+
 You'll see a lot of the same faces up the library, the same homeless people, sleeping rough, not helping people. They dont all have drug habits, but the bottom line is the UK doesnt help those back into work unless they cause trouble or go back to Prison. Some people milk the NHS and get on the PIP which tops up the money the Govt hands out to people.
 
 To me, it seems the Govt on paper helps people but in practice it just buys off the noisy complainers, trouble makers and drug takers.
